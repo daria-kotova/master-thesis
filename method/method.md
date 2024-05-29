@@ -21,14 +21,14 @@ I am curious to see how this social network may affect my running practice. Will
 
 # Methodology
 
-## How?
+## How? Where?
 
 1. Interviews with users (people directly from Strava, Instagram, Geneva Run Club):
 
    - video calls
    - IRL (running with people one-to-one, running with Geneva Run Club, cafes)
 
-2. Observations of runners in Geneva parks for finding interesting gestures / habbits
+2. Observations of runners in Geneva parks and by the quay for finding interesting gestures / habbits
 
 ## Who?
 
@@ -42,7 +42,8 @@ Large scope:
 
 ## What? (questions / topics)
 
-- General info: age, how long they have been running for, how long they have been using Strava for, do they prepare for any race
-- How their running practice have changed ever since they started using Strava?
+- General info: age, nationality, how long they have been running for, do they participate in races, how often they run, how long they have been using Strava for
+- How their running practice have changed ever since they started using Strava
+- Social aspect of the app: how their social interactions have changed with it
 - What are some original / odd interactions, habbits or situations related to this app?
 - What would they change in the app, what is missing?
