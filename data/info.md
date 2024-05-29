@@ -17,6 +17,6 @@ https://www.strav.art/
 
 Strava Art is made using your GPS computer to create a picture while exercising. It can be cycling, running, swimming, walking, hiking, skiing. Your activity is then synced with Strava.com to reveal your artwork.
 
-Over 3,000 pieces of art in our gallery with more being added every week.
+Over 3,000 pieces of art (Gary Cordery, graphic designer, typographical print maker and cyclist on Strava.)
 
 ![stravaart](/data/photos/Screenshot%202024-05-29%20at%2018.48.49.png)

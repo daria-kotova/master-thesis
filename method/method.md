@@ -2,15 +2,6 @@
 
 How social network applications like Strava affect the practice of running?
 
-In the METHOD folder on GitHub,
-upload a .md file that describes your
-research question, a motivation to
-explore it with references to literature/
-projects as well as the methodology
-you chose, as well as clarifications
-about it (number of interviews, places
-you’ll observe, etc.)
-
 # Motivation
 
 Running is originally an individual activity that nowadays can be shared collectively, both in real life and online, thanks to numerous running clubs and social network applications like Strava.
