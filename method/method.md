@@ -30,6 +30,8 @@ I am curious to see how this social network may affect my running practice. Will
 
 2. Observations of runners in Geneva parks and by the quay for finding interesting gestures / habbits
 
+3. My own experience, diary
+
 ## Who?
 
 Large scope:
