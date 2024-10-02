@@ -55,3 +55,19 @@ I think I would also like to try to do my own drawing and see how it goes and ho
 _Do you think for people who struggle with motivation and going out running this may be helpful?_
 
 I think so. I feel like you still need to have some running motivation. There are people that just don't like running, just don't enjoy it. So I feel like it does help with motivation, because you're doing something different and you can always explore your area differently or other areas as well. I guess it could also be helpful if you visit a new city or a new area in your country that you can unlock metaphorically. Maybe even you can get some hints about the city by running. But I guess maybe you can try the routes of other people, what they've already crafted in other cities. I'm thinking of like invisible landmarks. How can you explore a city in a different way with these invisible traces, invisible landmarks that you follow. I'm just thinking about how drawing can also be connected with exploring cities. This could also be a motivation. But I guess you can combine running with different things as well and they can help you to increase the motivation. Depending on your running level you can have a different drawing, it can be a more visual way of understanding running in some sort of way.
+
+---
+
+So how did it feel? Well, I really enjoyed following My yeah the the traces that I have in my own mind of the different designs I Feel like you need to be really conscious of what you're doing because otherwise you mess up the drawing and Also, I feel like It's more suitable for Drawing in smaller places Than in bigger places because you have more control of what you're gonna do.
+
+Yeah, and At the same time you do not see what you're doing Yeah, exactly and you're kind of like excited about the Outcome which is like the reward. Oh, yeah, you never know. Yes, exactly. And then this is like the sort of like the reward at the end like to see how How it turned out at the end and it's not just following something that it you already know that it's gonna work it's more about Enjoying the process being present about what you're doing and also enjoying the outcome or Making fun of the outcome and it's still funny Yeah,
+
+two of the outcomes are good What about like what did you like more like running alone or running together and trying to do something together? I feel like both Have positive aspects like when you're wrong when you run by your own you are Enjoying yourself and then just like Following that path in your mind and when you run with another person It's not just about having the path in your mind, but also about checking in Like checking making check -ins on the other person so that you are both on the same page and can synchronize Yeah,
+
+okay, so I feel like it's a bit more complicated when you do it with someone cuz it adds the level of Checking the other person then there's a more fun. I Feel like both are fun. Okay. Would you do it again?
+
+I would do that. Yeah Okay, but would you consider it as a motivation for running or not really? I think it could motivate people but The concept should be adjusted so that you can still have Control of what you're doing and I just just because now it's pretty much Freestyle, yes So I like in this current state can it be helpful or I do feel like it could be helpful Maybe like for sprints.
+
+Yes, and also like for physical education I feel just like I've been Seeing here in Geneva that some schools since they don't have a lot of space in their schools they go to like parks nearby to do physical education and they do actually short runs or short exercises and the PE teachers they just Track their activity and stuff like that and maybe it could be fun for those Yeah with those exercises Do you have anything else to add?
+
+No. Okay. Thank you for your interview
