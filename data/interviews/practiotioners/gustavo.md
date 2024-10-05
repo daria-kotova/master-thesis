@@ -1,1 +1,9 @@
 # Gustavo
+
+adding the maximum of details and that design that I do that's the file tht goes to gps. aAnd once it's there, he hit start on the map
+
+IT's a hard question to answer. The other day I did a design for a friend, she wanted to dedicate it to her grandchild and I gave her some suggestions, like peppa pig or Woody Woodpecker. And she said: no I wanted something more personal. Her name, Alicia. So, I said ok, that's fine. Alicia is an easy name to do. She said: but she has autism. I want to add the autism symbol as well. And i did her name and below I added the symbol. But I didn't add the inner puzzle it has. BEcause of the distance that it would require to add these details. And when she saw that, she said: I adore it, I really like it, but there's somtheing missing. And I already knew what it was. That it was the puzzle. Witht the puzzle pattern it would turn out to be 17km, 4 walking hours, more or less. And all of them agreed (to this distance). When the walking ended, each oof them saved the activity on the gps watches. When she saw it done, she started crying. Because when you are walking, you don't know what youre doing. IF someone looks at you from a distance, they think that you're crazy, that you're lost, walking in circles. But it's really fullfilling.
+
+The design itself it's a motivation to those who are going to participate. It works that way. All of those who're going to participate in the walking trail, knowing what the design looks like. They're motivated despite the distance or time. They want to finish that design.
+
+You do need to have a ccertain level of physical condition to execute designs of those. It's no as easy as you may think. But it's another motivation to do physical activity. I think that design does help a lot. But again, you need a physical preparation, it's not that easy.
