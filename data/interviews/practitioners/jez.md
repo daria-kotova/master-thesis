@@ -1,36 +1,16 @@
 # Jez
 
-Okay, so first of all, just tell me a bit about your running experience, when you started, how often you do it...
+When we moved to Geneva 10 years ago, I found a run group eventually. I kind of run quite a lot on my own and then found that it's actually nicer for me to run with other people. It's good for my mental health. If you know that you're going to meet people it helps to keep going even when things are hard.
 
-what I want to run generally.
+It helps with a motivation. There's a thing my wife and I sometimes say. If you're feeling down or you feel like you've got too much on, get outside with your running shoes on, because if you get out the front door with your running shoes on almost always you go for a run. You don't often just go outside close the door and then go back. Very occasionally you might do like one kilometer and be like: I really can't do it, and go home. But you usually get running. So if you can get out with your running shoes on, it's a way
 
-And why did you start?
+_You founded this club?_
 
-I started running in 2012, it was just before my son was born and I was a bit unfit and I was telling a colleague like at lunch all the reasons why I couldn't run and he like took them apart one by one, I can't even tell what they are anymore and he said right tomorrow let's go with our bring some run shoes, bring some trainers and some run clothes and let's go running on lunch break and it was literally like getting me to run to the first lamppost and then to the next lamppost and I was like walking right and then with him I started running so like it was a bit like doing couch to 5k or something we built up to a few kilometres in the UK there's been for 20 years but this was like 10 years ago,
+I was a co-foundedr of the Geneva Run Club, which is an informal run group. It doesn't have any legal status in Geneva, it's really informal. And there were, I don't even know, there's about 30 of us who founded it together and then about eight of us agreed to be the admins. So we just wanted a run group that was free, that wasn't formal, that anyone could come along to. We wanted a group that would be like free from racism, free from sexism, free from discrimination. We wanted it to be open to everyone. We wanted it to be that no one or very few people got lost. We wanted to be social. We're not going to make people better runners by training them, you can bring that yourself and whatever. And we started when I think you couldn't, I can't remember if it was like eight people or 30 people or something. which you couldn't have more than. So we always felt slightly like we're playing with the edges of what was allowed. When we first met you couldn't meet inside, you had to meet outside afterwards, so it was kind of like that era.
 
-no this is 12 years ago, there was a real flame.
+_Oh, have you started it during COVID?_
 
-38
-
-How old am I? I'm 46. So let's see, this must have been when I was 34, started running and there's this thing called Park Run which is the three five kilometer runs timed runs that's kind of coming around all over the place but it's probably going to get one in Geneva soon but basically I did them in London near where I lived so it was easy on a Saturday morning you just pitch out the door and go to turn up and then you run five cable loads of other people so it's really nice.
-
-I used to just like add a bit onto it as well and then when we moved to Geneva 10 years ago I found a run group eventually it mostly run it's kind of run quite a lot on my own and then found that it's actually nicer for me to run with other people it's good for my mental health I like sometimes find I have like a depression so it's good to get out and run with other people it kind of you know if you know that you're going to go and meet people it helps to keep going even when things are hard.
-
-have some information on this.
-
-it helps with a motivation. There's a thing my wife and I sometimes say about like if you're feeling down or you feel like you've got too much on get outside with your running shoes on because if you get out the front door with your running shoes on you're like almost always you go for a run you don't often just like go outside close the door and then go back in like very occasionally you might do like one kilometer and go like I really can't do it and go home but you usually get a run in so if you can get out with your running shoes on it's a way
-
-You found it So I hope
-
-I was co -founded the Geneva Run Club which is an informal run group, yeah, so it doesn't have any legal status in Geneva, it's really informal and there were, I don't even know, there's about 30 of us who founded it together and then about eight of us agreed to be like the admins, so we just wanted a run group that was three, that wasn't formal, that anyone could come along to, but hopefully there wouldn't be toilets,
-
-that's the air dry, the air dry, yeah, we wanted a group that would be like free from racism, free from sexism, free from discrimination, we wanted it to be open to everyone, we wanted it to be that no one or very few people got lost, we wanted to be social, we're not like going to make people better runners by training them, you can bring that yourself and whatever, and we started when I think you couldn't,
-
-I can't remember if it was like eight people or 30 people or something which you couldn't have more than, but so we always felt slightly like we're playing with the edges of what was allowed, but when we first met you couldn't meet inside, you had to meet outside afterwards, so it was kind of like that era, that's kind of quite hard to remember right, three or four years
-
-Oh, have you started it?
-
-like in the second year of the pandemic in 21.
+Like in the second year of the pandemic in 2021.
 
 Yeah, it feels like you're in a different area.
 
