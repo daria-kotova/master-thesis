@@ -67,3 +67,9 @@ _Okay, and going back to motivation, do you think if we talk about more beginner
 Yeah, I think initially it's important to form the habit. Initially I wasn't running consistently and made it very hard to progress in level beyond the initial kind of improvements you get from running once or twice a week. You need to run consistently three plus days a week and you need to find a motivation every day, including those days that you don't feel like going out and run. Otherwise, you won't progress too much beyond that.
 
 When my friend wrote Lina, she kind of used just some simple letters. I think she was able to plan them for other people as well very quickly. So as long as you set realistic goals for how much time you're willing to spend on the whole process, including the actual run and your capabilities, I think it can be done.
+
+## Conversation on Instagram
+
+_When reflecting on GPS-drawings being art_
+
+I also noticed that art generally requires some background knowledge to be appreciated. Someone who doesn't run may not appreciate the difficulty of doing that, although maybe that's not strictly true because if they imagine walking it becomes even crazier
