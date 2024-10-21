@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=OsMMysaZRyg
 
 6:37 (on technique "connecting the dots") I discovered quite by accident that if I pause my device at point A and restart it at pont B those lines connect or those dots connect with a straight line. And I use this technique to bring detail into some of my doodles where the roads do not cooperate.
 
-8:07 Fitness is really just one part of the GPS doodlingequation, and the other is creative expression. ... We all have a right brain, the epicenter of creativity and expression. And in each of us , I believe, there is a deep desire to create and express. And what excites me most about the GPS doodline is that it takes intimidation out of artistic expression. If you can move, you can doodle. You can do this on your bike, you can do this on a walk, you can do this on a skateboard. I actually intentionally call it GPS doodling, because the word "art" can be a bit lofty and exclusive. Everybody doodles and anyone can GPS-doodle.
+8:07 Fitness is really just one part of the GPS doodling equation, and the other is creative expression. ... We all have a right brain, the epicenter of creativity and expression. And in each of us, I believe, there is a deep desire to create and express. And what excites me most about the GPS doodline is that it takes intimidation out of artistic expression. If you can move, you can doodle. You can do this on your bike, you can do this on a walk, you can do this on a skateboard. I actually intentionally call it GPS doodling, because the word "art" can be a bit lofty and exclusive. Everybody doodles and anyone can GPS-doodle.
 
 9:14 You don't acctually create them. You discover them. They're in the map just waiting to be found.
 
