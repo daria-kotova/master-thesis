@@ -1,6 +1,6 @@
 # Gustavo
 
-_On GPS-drawins_
+_On GPS-drawings_
 
 I learned to do the GPS artworks because I always worked with map navigation, and map development. I have a certain skill in following routes and I a saw a design from a Canadian biker and that caught my attention. I downloaded his biking track to know how it was done and I saw that it had nothing different. It was as if he was following a route, so I downloaded it on the program and did my first artwork in a sugarcane plantation. When they cut the sugarcane, the area turns out like a soccer field without any obstacles and the designs turn out perfectly. For my surprise, the first person that praised me was that Canadian and I knew I was on the right path.
 

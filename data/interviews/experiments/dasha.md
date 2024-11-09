@@ -10,7 +10,7 @@ _On the run itself_
 
 I started running and then I realised that I had already missed the turn I was supposed to take, because it appeared too quickly. When I was running I checked the map on the phoone, but not all the time. This is why I missed it and decided to come back later. When you walk you have time to look around, but not when you run. Besides, I was running without an app, just with the map on my phone and it didn't let me know when I need to turn like a GPS-navigator would do. This is why you can miss a turn. It would be cool if the application let you know in advance when you needed to turn.
 
-_On motivation_
+_On experiencce and motivation_
 
 It was cool. There's motivation to run till the end when there's a drawing. It really works. But I faced with this difficulty. The fact that I had to come up with my own idea of what to draw. It would be cool if you could open the map and the AI proposed to you predefined drawings. It would be more interesting and you wouldn't have to lose time. Also, another thing. Usually, when I go on a run I start straight away from my house. And here you need to get to a certain point and start from there, finish your run and then go back.
 
