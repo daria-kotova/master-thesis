@@ -4,7 +4,7 @@ Started running a year ago. Ran one 5k race. Beginner. GPS-drawing - a bird, 2k.
 
 _On planning process_
 
-Tha hardest thing was to come up with the idea of what to run. I am not a very creative person and do not have much imagination. It was hard. I first opened Strava from my ccomputer, looked at what other people run, got shocked. Then I tried to draw using the website you had sent me. But it drew something weird, I tried a star and it gave me some sribbles. So, I decided just to look at the map. At first I had ideas, but I couldn't find anything from them in the map and so I just studied the map.
+Tha hardest thing was to come up with the idea of what to run. I am not a very creative person and do not have much imagination. It was hard. I first opened Strava from my ccomputer, looked at what other people run, got shocked. Then I tried to draw using the website you had sent me. But it drew something weird, I tried a star and it gave me some scribbles. So, I decided just to look at the map. At first I had ideas, but I couldn't find anything from them in the map and so I just studied the map.
 
 _On the run itself_
 
