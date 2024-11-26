@@ -1,6 +1,6 @@
 # My journal
 
-## Day 1 (heart).
+## Day 1. 17.09.2024 (heart, 6k)
 
 ![heart](/data/images/self-experiments/me_heart.jpg)
 
@@ -10,13 +10,13 @@ This was my first run after weeks of not working out at all, so I was surprised 
 
 I think when you run a race you have a well-determined goal, which is to complete the race in a certain time or simply complete it. However, when you do preparatory runs the goal is diluted, which may affect your motivation. Thus, adding another layer of motivation in the form of completing your drawing and afterwards sharing it with the world may be helpful. So, even though I slowed down and switched to walking at some segments, I still went on and completed the route.
 
-## Day 2 (hi).
+## Day 2. 18.09.2024 (hi, 2k)
 
 ![hi](/data/images/self-experiments/me_hi.jpg)
 
 This time it took me a bit less to get the shape I wanted, but my main limitation was the distance, 3 km. The shorter the distance, the more difficult it is to get something clear. I actually had to run over the same segments of route to achieve the image-distance balance. Unfortunately, I was still tired from the previous day and so cut it short, which made me think that without my drawing in mind I would have completely abandoned.
 
-## Day 3 (fish).
+## Day 3. 21.09.2024 (fish, 6k)
 
 ![fish](/data/images/self-experiments/me_fish.jpg)
 
@@ -27,11 +27,11 @@ This run was in a way tricky, because it took me around 40 minutes to get to the
 
 While I was waiting for one tram, that never came, and then for another, I was actually considering giving up and moving the run to another day. It was already late in the evening and hence dark. But I’m satisfied with how this run has turned out both in terms of of the drawing and my overall performance.
 
-## Day 4 (just running).
+## Day 4 (just running)
 
 Today I went back to running with GRC. What I can say. The fact that you run with someone definitely pushes you to go on. However, at some point I was really tempted to switch to walking which is pretty accessible when you do a run on your own, but with other people running with you you’re forced to continue. So either drop out and are left behind or you go on through pain. Which makes running in a group a questionable motivation, since it is not as enjoyable as going on for the sake of your final GPS-drawing.
 
-## Day 5 (Fred).
+## Day 5. 26.09.2024 (face, 7k)
 
 ![Fred](/data/images/self-experiments/me_face.jpg)
 
@@ -39,16 +39,40 @@ This was my least favorite run. I was proud with the result but the fact that it
 
 I understand more and more that with this drawings it is very rarely that you can just have an idea in mind and draw it on the map. Most of the time you find inspiration from the map itself. This is how I found my drawing of a man, let’s call him Fred. Fred has very pronounced nose and mouth features thanks to the road that served as the starting pointfor my inspiration and led to the final idea.
 
-## Day 6 (bird, with Andrés).
+## Day 6. 29.09.2024 (bird, with Andrés, 5k)
 
 ![bird](/data/images/experiments/me_andres_bird.jpg)
 
 Today I ran with my friend the route I had prepared for us. He had no clue what it would be and had to blindly follow me. The run took place in Ferney-Voltaire, a tiny village in France, making it even more difficult for me to plan. Personally, I am not super happy with the bird we did, but he enjoyed the surprise and recognized it straight away, even though during the run he couldn not figure out what we were drawing. I did get some satisfaction from being the only one who knew what we were doing and catching his surprised face expressions, whenever we would go in one direction and then abruptly turn back.
 
-## Day 7 (another guy).
+## Day 7. 30.09.2024 (cat, 12k)
+
+## Day 8. 06.10.2024 (dude, 15k)
 
 ![guy](/data/images/self-experiments/me_guy.jpg)
 
 I think my pareidolia tends to focus on finding human faces. When I was a child, I would stare at our ceiling in the bathroom while taking a shower and would see faces staring back at me. It comes with no surprise that when searching for a familiar shape in the map human silhouttes come easier to me.
 
 I was extremely unmotivated for this run, which was supposed to be my longest run ever of 15 km. Already, I spent in total around an hour trying to come up with something near my home and failing. In the end, I am not sure what motivated me more to go out and start. Probably it was the need to prepare for my race in October. But I am certain that the only reason I completed this workout was due to the drawing I was doing. I really do not like running after all. So it is still a mystery to me why I keep doing it. Anyway, this is how another weird man in the streets was born.
+
+## Day 9 (failed attempt)
+
+It all just didn’t start well. I didn’t want to go, but then I had this very recognizable elephant run planned the night before. So I ended up going with little sleep, feeling extremely weak and wanting to give up straight away. Well.. I did give up 5k in, because of my stomach, who clearly wasn’t on my side this day. So, this was the first time when motivation to finish a drawing was not strong enough to continue. To be continued.
+
+## Day 10. 11.10.2024 (house, 8k)
+
+This was the day when motivation was very low. I needed to run, but I didn’t want to and especially not somewhere far. So, I came back to the shape that I had once considered doing, a house, a very questionable house with a weird roof. But hey, I did go out and I did complete it.
+
+## Day 11. 14.10.2024 (lion, 16k, planned by Tim)
+
+Today’s GPS-drawing was planned by Tim. It was a 16k lion spreading across the center of Geneva. This saved me from spending hours trying to find an interesting route, but added additional challenges. Firstly, there was a subconscious pressure, since I knew how much work Tim puts into his routes and I didn’t want to let him down. So, I would spend extra time making sure I took the exact route he had chosen. And man, there are a lot of small streets here. Secondly, this was the first time I experienced how unstable GPS signal can be. Tim’s lion had some intricate details, mainly in the head, so they required some precision. Unfortunately, my GPS-track was all over the place, sometimes even passing over buildings, where I clearly did not run. No matter how hard I tried to run in the most straight way possible the lines turned to be very jagged. Thirdly, up until this point I had mainly run in the outskirts of Geneva, where there’re fewer cars and close to zero of traffic lights. This time, I was in the very centre of the city, meaning spending time waiting for the lights to change. I can’t really complain, because it allowed me to take a breath, but I did lose quite a lot of time.
+
+The final result took me 1h 53mins to complete. Overall, even though it was interesting to run a professional gps-drawing for once, the additional pressure made it more stressful. And I think I just can’t really be proud of it, because after all, this wasn’t me who planned it, so I couldn’t take full credit. My drawings, though simple, remain mine and give me more pleasure once they are done. I’m proud that I ran 16k though, which is my longest distance so far.
+
+## Day 12. 16.10.2024 (flamingo, 8k)
+
+Combining writing a thesis with a regular running practice can be difficult. I still can’t find motivation to finish my elephant, because it’s so far away from my house. This is why I try to find closer routes, so that when I complete them I won’t have to come back in the dark. Yes, I’m still struggling with running in the morning. So, this time I found a bird shape that I believe to be a flamingo. Overall, it was an okay run, definitely faster and easier to do than the lion. It does bother me though that my works are incredibly simple compared to practitioners. GPS-drawings require a lot of dedication and imagination, especially if you want to do them at a good level.
+
+## Day 13. 20.10.2024 (elephant, 9k)
+
+I finally finished the elephant. It was actually easier to run it this time, as I already knew half of the road and it saved me from constantly checking my phone. Defiinitely had more energy and felt much better. However, since it was away from home ans I started my run late in the afternoon, I was finishing it in the darkness. But I think it was a meaningful ending to my experience - an elephant as the easiest drawing to find in the map according to Tim. Knowing that it was my last GPS-drawing before my half-marathon on Oct 27 encouraged me to try harder for this one, I even an added an that I hadn't planned originally. Finishing my elephant was very satisfying.
