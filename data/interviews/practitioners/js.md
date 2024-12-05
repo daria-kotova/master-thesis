@@ -12,7 +12,7 @@ J'ai commencé avant le Covid. J'ai dû commencer, je pense les premiers dessins
 
 Mon but, c'était de créer quelque chose assez nouveau dans le Stravart, que j'ai déjà fait, c'était de faire déjà ces tracés, de les mettre aussi en couleur. C'est ce que j'ai mis sur mon Instagram. J'avais fait aussi un tracé interactif, où en fonction du comment tu le coupes, ça fait une vidéo. J'avais envie de pousser le concept du Stravart un peu plus loin.
 
-_ON his biggest drawing_
+_On his biggest drawing_
 
 Puis là, je viens de finir ce dimanche mon plus gros Stravart. Et je pense que c'est en termes mondial le plus gros en termes de difficulté. Parce qu'il fait toute la région Gruyère. Je l'ai fait passer par tous les points touristiques de la région, que ce soit les montagnes, que ce soit le château de gruyère, la fabrique de chocolat, la fabrique de fromage, les tessantes de VTT de DH qui est dans le coin. Vraiment tous les points à visiter. Et j'ai fait une activité en quatre sports.
 

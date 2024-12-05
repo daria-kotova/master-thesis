@@ -62,7 +62,7 @@ _On elephants_
 
 An elephant, in my opinion, is the easiest thing to draw. I don't really know, but I think it's because they're so big. It's one of the very few things where I can actually just sit down and say: I'm going to draw an elephant, and I can actually draw an elephant. Most of the other animals, they don't work out that way.
 
-If you ever get to London and want to run an elephant, I've literally got, I don't know, maybe a hundred elephants. There's a lot of elephants out there, they're everywhere.
+If you ever get to London and want to run an elephant, I've literally got, I don't know, maybe a hundred elephants. There're a lot of elephants out there, they're everywhere.
 
 ## Conversation on Instagram
 
