@@ -96,6 +96,6 @@ I finally finished the elephant. It was actually easier to run it this time, as 
 
 Rereading my notes now, I'm surprised and not surprised at the same time with how often I felt unmotivated to run. Clearly my GPS-drawings served as a strong motivation to finish my runs once I started, but I'm not sure they pushed me enough to go out. Most likely, it was mainly my thesis and half-marathon preparation that made all the work.
 
-So would I continue doing them? Yes, but... It would probably be in the context of another race preparation. Unless, I fall in love with running and conquer my laziness. Also, it's super cold now. Ok, not super, but still cold, and I don't like running in cold weather. Alternatively, I would run a GPS-drawing with someone, but these people are yet to be found.
+So would I continue doing them? Yes, but... It would probably be in the context of another race preparation, unless I fall in love with running and conquer my laziness. Also, it's super cold now. Ok, not super, but still cold, and I don't like running in cold weather. Alternatively, I would run a GPS-drawing with someone, but these people are yet to be found.
 
 Overall, it was a cool experience and I will do it again. Peace.
