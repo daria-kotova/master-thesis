@@ -1,6 +1,8 @@
 #Lena (translated by me from Russian)
 
-started running a couple of years ago
+Started running a couple of years ago
+
+![lena](/data/images/experiments/lena.JPG)
 
 _On her GPS-drawing experience_
 

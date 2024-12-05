@@ -1,10 +1,12 @@
 # Polina (translated by me from Russian)
 
-Started running 8-9 years ago, has been running regularly for a year 2 times per week
+Started running 8-9 years ago, has been running regularly for a year 2 times per week, did one 10k race, intermediate
+
+![polina](/data/images/experiments/polina.jpg)
 
 _On how she planned_
 
-I was thinking on making either a rose or a fish. The rose didn't work out. The fish.. I think it turned out well, it's more a whale, but I think it's somewhat successful. Not an exceptional beauty, but it least yyou can recognise it.
+I was thinking on making either a rose or a fish. The rose didn't work out. The fish.. I think it turned out well, it's more a whale, but I think it's somewhat successful. Not an exceptional beauty, but it least you can recognise it.
 
 _On how it felt_
 

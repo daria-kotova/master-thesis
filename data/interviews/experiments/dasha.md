@@ -1,6 +1,8 @@
 # Dasha (translated by me from Russian)
 
-Started running a year ago. Ran one 5k race. Beginner. GPS-drawing - a bird, 2k.
+Started running a year ago. Ran one 5k race, beginner
+
+![dasha](/data/images/experiments/dasha.JPG)
 
 _On planning process_
 

@@ -6,6 +6,8 @@ _On GPS-drawings_
 
 Actually, it's the first time. I mean, I knew that people drew with Strava. I knew that was a thing. You know, during Covid I think. But actually I had no clue that a lot of people were doing it. I thought it was just a viral challenge or something on the internet. Not like people doing it really just because.
 
+![bird](/data/images/experiments/bird.jpeg)
+
 _On the run itself_
 
 I felt many things. First of all, I was trying to guess what I was doing, trying to connect the dots and understand the patterns of what we're doing. Then I felt really disoriented. I was like: okay I think I'm doing something, and then I'm doing the opposite thing. In my mind it was like: okay, this is odd, this makes no sense and I feel dizzy.
