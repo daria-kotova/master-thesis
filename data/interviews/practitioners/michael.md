@@ -1,4 +1,6 @@
-- Michael Kutzner (interview together with his daughter Anne, who was translating from German to English) (started GPS-drawings in 2017)
+## Michael Kutzner (interview together with his daughter Anne, who was translating from German to English)
+
+Started GPS-drawings in 2017
 
 _On how he started doing GPS-drawings_
 

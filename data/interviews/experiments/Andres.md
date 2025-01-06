@@ -1,6 +1,6 @@
 # Andrés (we ran together my drawing)
 
-Started running 10 years ago, ran a 10k race, intermediate l
+Started running 10 years ago, ran a 10k race, intermediate
 
 _On GPS-drawings_
 

@@ -1,6 +1,6 @@
 # Octav
 
-(Romanian, works in computer science in Google, lives in San Francisco, does mararhons)
+Romanian, works in computer science in Google, lives in San Francisco, does mararhons
 
 _On how he first learnt anout GPS-drawings_
 

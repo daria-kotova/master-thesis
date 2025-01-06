@@ -1,4 +1,6 @@
-# Conor (running for 5 years, runs 5-6 times per week)
+# Conor 
+
+Has been running for 5 years, runs 5-6 times per week, pro
 
 _On how he learnt about GPS-drawings_
 

@@ -26,7 +26,7 @@ _On his idea of adding colours_
 
 Parce que personne ne le faisait. Et je trouvais que le problème, c'est que beaucoup de personnes, des fois, ne se rendent pas compte qu'on dessine quelque chose, ne voient pas tout de suite le dessin. Et ça permettait de mieux mettre en visuel pour les gens qui ont des fois un petit peu de mal à imaginer.
 
-Alors uniquement avec Paint et Word. Parce qu'avec Word tu peux enlever le fond de ta carte, tu peux du coup commencer à utiliser des images, c'est pour avoir une première impression. Puis, après j'envoie ça dans Paint, je fais une capture d'écran et là je fais toutes les corrections dans Paint pour que ça soit un peunplus joli.
+Alors uniquement avec Paint et Word. Parce qu'avec Word tu peux enlever le fond de ta carte, tu peux du coup commencer à utiliser des images, c'est pour avoir une première impression. Puis, après j'envoie ça dans Paint, je fais une capture d'écran et là je fais toutes les corrections dans Paint pour que ça soit un peu plus joli.
 
 _On helping with motivation_
 

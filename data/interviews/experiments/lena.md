@@ -1,6 +1,6 @@
 #Lena (translated by me from Russian)
 
-Started running a couple of years ago
+Started running a couple of years ago, intermediate
 
 ![lena](/data/images/experiments/lena.JPG)
 
